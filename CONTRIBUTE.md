@@ -4,3 +4,5 @@
 -please follow the required format.
 -feel free to add sex-position you want.
 -Try not to repeat already present one.
+-Do not hesitate to contribute.
+
